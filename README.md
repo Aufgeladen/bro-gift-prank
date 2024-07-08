@@ -1,2 +1,4 @@
 # bro-gift-prank
 js the ctrl s version of the bro gift scam nothing malicious
+
+# THIS IS JUST A STOLEN VERSION OF A SCAM WEBSITE EVERYTHING MALICOUS SHOULD BE REMOVED
